@@ -19,7 +19,7 @@
 
 ### 2.一首歌
 
-[惊不惊喜 意不意外???](http://www.xiami.com/play?ids=/song/playlist/id/1770692717/object_name/default/object_id/0#loaded)
+[惊不惊喜 意不意外???](saduoduo.github.io/仓颉-五月天.mp3)
 
 ### 3.一段字
 >咳！
